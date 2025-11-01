@@ -1,1 +1,1 @@
-This website is work in progress.
+The website will be done in 2025 or this november.
