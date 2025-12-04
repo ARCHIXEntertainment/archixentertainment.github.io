@@ -1,1 +1,1 @@
-The website will be done in 2025 or this november.
+The website will be done in 2025.
